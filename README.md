@@ -1,3 +1,2 @@
-fuckBattlEye
- 😄 hi bro
+😄 hi bro
 
