@@ -1,2 +1,2 @@
-# -fuckBattlEye
+fuckBattlEye
 Good luck ! 😄
